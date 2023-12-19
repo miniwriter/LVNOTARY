@@ -3,19 +3,14 @@
 In the vibrant hub of Las Vegas, amidst the whirlwind of activities, managing crucial paperwork and legal documentation need not be a daunting task. Notary services stand as steadfast allies in this administrative landscape, offering a spectrum of options—from in-office appointments to mobile services and even online accessibility. This guide is a beacon illuminating the avenues available for individuals seeking [**Las Vegas Notary Public**](https://www.lvnotary.co/) services emphasizing the unparalleled convenience and flexibility each avenue presents. Whether you're a local resident or a visitor, the city caters to your document authentication needs with seamless options.
 
 
-<div class="separator" style="clear: both;">
-  <a
-    target="_blank"
-    href="#"
-    style="border-bottom: none !important; display: block; padding: 1em 0; text-align: center;"
-    ><img style="max-width: 850px;"
+<p align="center">
+    <img style="max-width: 850px;"
       alt=""
       border="0"
       data-original-height="500"
       data-original-width="500"
       src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj9fXqCK46prnd6rX_Q4aKgfWjgwzTZl65RNDq1BD2lweuNJbomn86k7lxodk7NQP8IsYw9kq3p5KvtZg6QVILJ7k8rm7LZBoZmE-daSr82EkY_C7FcU8nqNkaQJ8SbAEVkPtLdjPeJvIZ1BfhteUqo8ZgughZRWOgrnvmdIGaWImFub5bcST_SdAuV6O7Q/s1600/LVNOTARY%20Las%20Vegas%20Notary%20Public.png"
-  /></a>
-</div>
+  />  </p>
 
 ## Best Notary Public Services in Las Vegas
 
